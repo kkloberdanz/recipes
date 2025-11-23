@@ -30,6 +30,10 @@ denaturing the egg yolks.
 the yolks coagulate and the mixture becomes unpleasantly chunky. Ensure the
 Bourbon is added slowly while mixing.
 
+The Bourbon works as a preservative and also kills any salmonella that could be
+in the eggs. If you use less Bourbon than the recipe calls for, your eggnog may
+not be as well preserved as this recipe expects.
+
 ### Age the eggnog
 
 This recipe makes some very boozy eggnog. At first it will taste too strong.
