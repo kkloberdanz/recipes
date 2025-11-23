@@ -23,7 +23,7 @@ Slowly mix in the sugar.
 ### Mix in the liquids
 
 Mix in the milk and heavy whipping cream. After fully combined with the egg
-yolks, slowly mix the Bourbon in - ensure you are constantly mixing to avoid
+yolks, slowly mix the Bourbon in — ensure you are constantly mixing to avoid
 denaturing the egg yolks.
 
 > Warning: If the Bourbon is added directly to the yolks without mixing, then
