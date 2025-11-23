@@ -6,7 +6,6 @@
 - 3 Cups heavy whipping cream
 - 3 Cups bourbon (I use Bullet Bourbon)
 - 2.25 Cups sugar
-- 2 Cups sugar
 - 1 Whole nutmeg (finely grated)
 
 ## Procedure:
